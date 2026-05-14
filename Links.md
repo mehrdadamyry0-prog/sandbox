@@ -2,6 +2,34 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-14 20:03 IR
+- 🎬 (Part) [نقش_چین_در_تنگه_هرمز____‌_گفتگو_با_دکتر_رحمن_قهرمان_پور_part_000.mp4](https://github.com/mehrdadamyry0-prog/sandbox/raw/main/dl/%D9%86%D9%82%D8%B4_%DA%86%DB%8C%D9%86_%D8%AF%D8%B1_%D8%AA%D9%86%DA%AF%D9%87_%D9%87%D8%B1%D9%85%D8%B2____%E2%80%8C_%DA%AF%D9%81%D8%AA%DA%AF%D9%88_%D8%A8%D8%A7_%D8%AF%DA%A9%D8%AA%D8%B1_%D8%B1%D8%AD%D9%85%D9%86_%D9%82%D9%87%D8%B1%D9%85%D8%A7%D9%86_%D9%BE%D9%88%D8%B1_part_000.mp4) `12.9MB`
+
+- 🎬 (Part) [نقش_چین_در_تنگه_هرمز____‌_گفتگو_با_دکتر_رحمن_قهرمان_پور_part_001.mp4](https://github.com/mehrdadamyry0-prog/sandbox/raw/main/dl/%D9%86%D9%82%D8%B4_%DA%86%DB%8C%D9%86_%D8%AF%D8%B1_%D8%AA%D9%86%DA%AF%D9%87_%D9%87%D8%B1%D9%85%D8%B2____%E2%80%8C_%DA%AF%D9%81%D8%AA%DA%AF%D9%88_%D8%A8%D8%A7_%D8%AF%DA%A9%D8%AA%D8%B1_%D8%B1%D8%AD%D9%85%D9%86_%D9%82%D9%87%D8%B1%D9%85%D8%A7%D9%86_%D9%BE%D9%88%D8%B1_part_001.mp4) `12.7MB`
+
+- 🎬 (Part) [نقش_چین_در_تنگه_هرمز____‌_گفتگو_با_دکتر_رحمن_قهرمان_پور_part_002.mp4](https://github.com/mehrdadamyry0-prog/sandbox/raw/main/dl/%D9%86%D9%82%D8%B4_%DA%86%DB%8C%D9%86_%D8%AF%D8%B1_%D8%AA%D9%86%DA%AF%D9%87_%D9%87%D8%B1%D9%85%D8%B2____%E2%80%8C_%DA%AF%D9%81%D8%AA%DA%AF%D9%88_%D8%A8%D8%A7_%D8%AF%DA%A9%D8%AA%D8%B1_%D8%B1%D8%AD%D9%85%D9%86_%D9%82%D9%87%D8%B1%D9%85%D8%A7%D9%86_%D9%BE%D9%88%D8%B1_part_002.mp4) `14.3MB`
+
+- 🎬 (Part) [نقش_چین_در_تنگه_هرمز____‌_گفتگو_با_دکتر_رحمن_قهرمان_پور_part_003.mp4](https://github.com/mehrdadamyry0-prog/sandbox/raw/main/dl/%D9%86%D9%82%D8%B4_%DA%86%DB%8C%D9%86_%D8%AF%D8%B1_%D8%AA%D9%86%DA%AF%D9%87_%D9%87%D8%B1%D9%85%D8%B2____%E2%80%8C_%DA%AF%D9%81%D8%AA%DA%AF%D9%88_%D8%A8%D8%A7_%D8%AF%DA%A9%D8%AA%D8%B1_%D8%B1%D8%AD%D9%85%D9%86_%D9%82%D9%87%D8%B1%D9%85%D8%A7%D9%86_%D9%BE%D9%88%D8%B1_part_003.mp4) `13.9MB`
+
+- 🎬 (Part) [نقش_چین_در_تنگه_هرمز____‌_گفتگو_با_دکتر_رحمن_قهرمان_پور_part_004.mp4](https://github.com/mehrdadamyry0-prog/sandbox/raw/main/dl/%D9%86%D9%82%D8%B4_%DA%86%DB%8C%D9%86_%D8%AF%D8%B1_%D8%AA%D9%86%DA%AF%D9%87_%D9%87%D8%B1%D9%85%D8%B2____%E2%80%8C_%DA%AF%D9%81%D8%AA%DA%AF%D9%88_%D8%A8%D8%A7_%D8%AF%DA%A9%D8%AA%D8%B1_%D8%B1%D8%AD%D9%85%D9%86_%D9%82%D9%87%D8%B1%D9%85%D8%A7%D9%86_%D9%BE%D9%88%D8%B1_part_004.mp4) `14.1MB`
+
+- 🎬 (Part) [نقش_چین_در_تنگه_هرمز____‌_گفتگو_با_دکتر_رحمن_قهرمان_پور_part_005.mp4](https://github.com/mehrdadamyry0-prog/sandbox/raw/main/dl/%D9%86%D9%82%D8%B4_%DA%86%DB%8C%D9%86_%D8%AF%D8%B1_%D8%AA%D9%86%DA%AF%D9%87_%D9%87%D8%B1%D9%85%D8%B2____%E2%80%8C_%DA%AF%D9%81%D8%AA%DA%AF%D9%88_%D8%A8%D8%A7_%D8%AF%DA%A9%D8%AA%D8%B1_%D8%B1%D8%AD%D9%85%D9%86_%D9%82%D9%87%D8%B1%D9%85%D8%A7%D9%86_%D9%BE%D9%88%D8%B1_part_005.mp4) `13.3MB`
+
+- 🎬 (Part) [نقش_چین_در_تنگه_هرمز____‌_گفتگو_با_دکتر_رحمن_قهرمان_پور_part_006.mp4](https://github.com/mehrdadamyry0-prog/sandbox/raw/main/dl/%D9%86%D9%82%D8%B4_%DA%86%DB%8C%D9%86_%D8%AF%D8%B1_%D8%AA%D9%86%DA%AF%D9%87_%D9%87%D8%B1%D9%85%D8%B2____%E2%80%8C_%DA%AF%D9%81%D8%AA%DA%AF%D9%88_%D8%A8%D8%A7_%D8%AF%DA%A9%D8%AA%D8%B1_%D8%B1%D8%AD%D9%85%D9%86_%D9%82%D9%87%D8%B1%D9%85%D8%A7%D9%86_%D9%BE%D9%88%D8%B1_part_006.mp4) `12.4MB`
+
+- 🎬 (Part) [نقش_چین_در_تنگه_هرمز____‌_گفتگو_با_دکتر_رحمن_قهرمان_پور_part_007.mp4](https://github.com/mehrdadamyry0-prog/sandbox/raw/main/dl/%D9%86%D9%82%D8%B4_%DA%86%DB%8C%D9%86_%D8%AF%D8%B1_%D8%AA%D9%86%DA%AF%D9%87_%D9%87%D8%B1%D9%85%D8%B2____%E2%80%8C_%DA%AF%D9%81%D8%AA%DA%AF%D9%88_%D8%A8%D8%A7_%D8%AF%DA%A9%D8%AA%D8%B1_%D8%B1%D8%AD%D9%85%D9%86_%D9%82%D9%87%D8%B1%D9%85%D8%A7%D9%86_%D9%BE%D9%88%D8%B1_part_007.mp4) `14.5MB`
+
+- 🎬 (Part) [نقش_چین_در_تنگه_هرمز____‌_گفتگو_با_دکتر_رحمن_قهرمان_پور_part_008.mp4](https://github.com/mehrdadamyry0-prog/sandbox/raw/main/dl/%D9%86%D9%82%D8%B4_%DA%86%DB%8C%D9%86_%D8%AF%D8%B1_%D8%AA%D9%86%DA%AF%D9%87_%D9%87%D8%B1%D9%85%D8%B2____%E2%80%8C_%DA%AF%D9%81%D8%AA%DA%AF%D9%88_%D8%A8%D8%A7_%D8%AF%DA%A9%D8%AA%D8%B1_%D8%B1%D8%AD%D9%85%D9%86_%D9%82%D9%87%D8%B1%D9%85%D8%A7%D9%86_%D9%BE%D9%88%D8%B1_part_008.mp4) `12.9MB`
+
+- 🎬 (Part) [نقش_چین_در_تنگه_هرمز____‌_گفتگو_با_دکتر_رحمن_قهرمان_پور_part_009.mp4](https://github.com/mehrdadamyry0-prog/sandbox/raw/main/dl/%D9%86%D9%82%D8%B4_%DA%86%DB%8C%D9%86_%D8%AF%D8%B1_%D8%AA%D9%86%DA%AF%D9%87_%D9%87%D8%B1%D9%85%D8%B2____%E2%80%8C_%DA%AF%D9%81%D8%AA%DA%AF%D9%88_%D8%A8%D8%A7_%D8%AF%DA%A9%D8%AA%D8%B1_%D8%B1%D8%AD%D9%85%D9%86_%D9%82%D9%87%D8%B1%D9%85%D8%A7%D9%86_%D9%BE%D9%88%D8%B1_part_009.mp4) `12.6MB`
+
+- 🎬 (Part) [نقش_چین_در_تنگه_هرمز____‌_گفتگو_با_دکتر_رحمن_قهرمان_پور_part_010.mp4](https://github.com/mehrdadamyry0-prog/sandbox/raw/main/dl/%D9%86%D9%82%D8%B4_%DA%86%DB%8C%D9%86_%D8%AF%D8%B1_%D8%AA%D9%86%DA%AF%D9%87_%D9%87%D8%B1%D9%85%D8%B2____%E2%80%8C_%DA%AF%D9%81%D8%AA%DA%AF%D9%88_%D8%A8%D8%A7_%D8%AF%DA%A9%D8%AA%D8%B1_%D8%B1%D8%AD%D9%85%D9%86_%D9%82%D9%87%D8%B1%D9%85%D8%A7%D9%86_%D9%BE%D9%88%D8%B1_part_010.mp4) `13.1MB`
+
+- 🎬 (Part) [نقش_چین_در_تنگه_هرمز____‌_گفتگو_با_دکتر_رحمن_قهرمان_پور_part_011.mp4](https://github.com/mehrdadamyry0-prog/sandbox/raw/main/dl/%D9%86%D9%82%D8%B4_%DA%86%DB%8C%D9%86_%D8%AF%D8%B1_%D8%AA%D9%86%DA%AF%D9%87_%D9%87%D8%B1%D9%85%D8%B2____%E2%80%8C_%DA%AF%D9%81%D8%AA%DA%AF%D9%88_%D8%A8%D8%A7_%D8%AF%DA%A9%D8%AA%D8%B1_%D8%B1%D8%AD%D9%85%D9%86_%D9%82%D9%87%D8%B1%D9%85%D8%A7%D9%86_%D9%BE%D9%88%D8%B1_part_011.mp4) `6.5MB`
+
+---
+
+
 ### 📅 2026-05-14 18:42 IR
 - 🗜️ [نقش_چین_در_تنگه_هرمز____‌_گفتگو_با_دکتر_رحمن_قهرمان_پور.7z.001](https://github.com/mehrdadamyry0-prog/sandbox/raw/main/dl/%D9%86%D9%82%D8%B4_%DA%86%DB%8C%D9%86_%D8%AF%D8%B1_%D8%AA%D9%86%DA%AF%D9%87_%D9%87%D8%B1%D9%85%D8%B2____%E2%80%8C_%DA%AF%D9%81%D8%AA%DA%AF%D9%88_%D8%A8%D8%A7_%D8%AF%DA%A9%D8%AA%D8%B1_%D8%B1%D8%AD%D9%85%D9%86_%D9%82%D9%87%D8%B1%D9%85%D8%A7%D9%86_%D9%BE%D9%88%D8%B1.7z.001) `95.0MB`
 
